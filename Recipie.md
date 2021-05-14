@@ -1,0 +1,1 @@
+First take two pieces of bread and lay them down. Then cut your tomato. Then take out the sauce. Then take out the lettuce. Then take out the cheese. Then put them all in a sanchwhich. 
